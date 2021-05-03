@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @catanni
+- 👀 I’m interested in games, books, movies.
+- 📚 I have a master's degree in biotechnology and environmental monitoring
+- 🌱 I’m currently studying analysis and systems development
